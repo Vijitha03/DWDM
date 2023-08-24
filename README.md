@@ -26,6 +26,13 @@
 ![image](https://github.com/Vijitha03/DWDM/assets/113349410/12545158-c3e2-4efa-85e7-19c19a334c7b)
 
 ![image](https://github.com/Vijitha03/DWDM/assets/113349410/07a23c4f-3313-4864-be72-874631131f18)
+### day 3
+![image](https://github.com/Vijitha03/DWDM/assets/113349410/1b5c8f62-caa9-4641-8aec-62a3b3e4625c)
+![image](https://github.com/Vijitha03/DWDM/assets/113349410/513f8bfd-dd0f-4cba-9ff3-11695394ed4c)
+![image](https://github.com/Vijitha03/DWDM/assets/113349410/9c742ecd-bb6b-4580-ae8a-a8c9529a8464)
+![image](https://github.com/Vijitha03/DWDM/assets/113349410/b5553414-1c54-4f53-9bd9-663d1b82d2fa)
+![image](https://github.com/Vijitha03/DWDM/assets/113349410/0e57da80-7818-45fb-b2d2-f9537d46bd8f)
+![Uploading image.png…]()
 
 
 
