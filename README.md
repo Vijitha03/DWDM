@@ -19,6 +19,9 @@
 ### day 2
 question 4
 ![image](https://github.com/Vijitha03/DWDM/assets/113349410/4592212f-9f8a-411e-b257-9a30e3a86168)
+#### question 5
+![image](https://github.com/Vijitha03/DWDM/assets/113349410/84ea291b-3b01-4dfd-a060-1af04fb7e555)
+
 
 
 ### day 4
