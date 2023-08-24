@@ -25,6 +25,8 @@
 
 ![image](https://github.com/Vijitha03/DWDM/assets/113349410/12545158-c3e2-4efa-85e7-19c19a334c7b)
 
+![image](https://github.com/Vijitha03/DWDM/assets/113349410/07a23c4f-3313-4864-be72-874631131f18)
+
 
 
 
